@@ -1,5 +1,5 @@
 # Hi, I'm Shravani 👋
-**Data Analyst | Analytics Engineer in progress**
+**Data Analyst | Analytics Engineer**
 
 📍 Fairfax, VA &nbsp;|&nbsp; MS CS @ GMU (4.0 GPA) &nbsp;|&nbsp; Graduating Dec 2026
 
